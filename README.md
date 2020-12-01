@@ -1,2 +1,0 @@
-# Kushal Shah Resume
- 
